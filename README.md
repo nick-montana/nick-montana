@@ -2,7 +2,9 @@
 
 
 - 🔭 I’m currently working on Palantir Data Pipelines
-- 🌱 I’m currently learning Sound Engineering & Music Production
-- 👯 I’m looking to collaborate on content creation and podcasting
-- 💬 Ask me about Ice Hockey 
+- 🌱 I’m currently learning written and conversational German
+- 👯 I’m looking to collaborate on software projects, content creation, and podcasting
+- 🌎 Originally from Minnesota, now in Manhattan
+- 😄 50% Italian 50% Finnish
+- 💬 Ask me about The Song of Ice and Fire
 - 📫 How to reach me: Nick.Montana@gmail.com or message me on LinkedIn
