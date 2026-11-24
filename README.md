@@ -7,4 +7,4 @@
 - 🌎 Originally from Minnesota, now in Manhattan
 - 😄 50% Italian 50% Finnish
 - 💬 Ask me about The Song of Ice and Fire
-- 📫 How to reach me: Nick.Montana@gmail.com or message me on LinkedIn
+- 📫 How to reach me: nick.p.montana@gmail.com or message me on LinkedIn
